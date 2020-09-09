@@ -1,1 +1,1 @@
-# Tech-with-Mwando-Creative-Collections
+# Tech-with-Mwando-Collections
